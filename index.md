@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+This is my blog, my name is Brian. Nice to meet you y'all. Be safe nighty night!!!!
